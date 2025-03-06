@@ -1,20 +1,21 @@
 - --------------------------------------------------------------------------------------------------
 
-- ☆.Due to online harassment and stalking, I am removing several of my personal links.☆
-- ☆.I have now disabled friend requests for privacy.☆
-- ☆.This is a game many people such as myself play for enjoyment, learn to be kind please and do not involve me in drama.☆
+- ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
+- ☆.My friend requests are off!! Please ask if you'd like to friend me :333!!!.☆
+- ☆.I usually play this game to relax, often times I'm lurking or making skins!!! Please don't drag me into drama... ÚnÙ.☆
+- ☆. I get anxious very easily <:)!!! I might stop talking or briefly leave the conversation/game if I get too overwhelmed.☆
+- ☆. Whispers are ALWAYS WELCOME!!! I compliment freely :))!!! I also block for 15 minutes if I am uncomfortable, it takes a lot to get a perma ban!!!! .☆
 
 - --------------------------------------------------------------------------------------------------
 
-- ☆.Hello my name is Judas, call me whatever my pony name is too.☆
-- ☆.Please do not talk to me if you are under 16-17, it makes me uncomfortable.☆
-- ☆.Don't copy my ponies, inspo idc just not a 1 to 1 copy.☆
-- ☆.Do not ask for my discord or friend me if you haven't spoken to me before, or if I'm unaware of your age.☆
-- ☆.I'm usually AFK, but feel free to C+H, whisper to interact if you don't see me active please!!!.☆
-- ☆.I offtab very often, if I don't respond don't take it as me being rude!!.☆
-- ☆.Tonetags are highly appreciated!!.☆
-- ☆.This is mostly for Ponytown.☆
-- ☆.Enjoy the Blinkie and Stamp hoard below.☆
+- ☆.That being said... hello!! My name is Judas :3, call me whatever my pony name is too!!!.☆
+- ☆.I ask that you please do not talk to me if you are under 16-17, it makes me uncomfortable <:(!!! If I find you lied about your age I will unfriend you!!!.☆
+- ☆.I don't really like people copying my ponies, taking inspo from the colors and general design is A-OK!!! Just not a 1 to 1 copy....☆
+- ☆.I would prefer it if you asked for my Discord first!!! I don't like random strangers friending me UvU!!!.☆
+- ☆.I'm usually AFK and/or lurking, but feel free to C+H, whisper to interact if you don't see me active please!!! (Friends are especially welcome).☆
+- ☆.I offtab very often, if I don't respond don't take it as me being rude!! In fact please whisper to get my attention!!! :].☆
+- ☆.Tonetags are highly appreciated!! I have a hard time telling tone over text, if you speak dryly I may ask for tone specification.☆
+- ☆.Enjoy the Blinkie and Stamp hoard below!!!! More to be added... (and made ehehehe :3).☆
 
 - --------------------------------------------------------------------------------------------------
 
