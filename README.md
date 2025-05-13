@@ -3,18 +3,20 @@
 - ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
 - ☆.My friend requests are off!! Please ask if you'd like to friend me :333!!!.☆
 - ☆.I usually play this game to relax, often times I'm lurking or making skins!!! Please don't drag me into drama... ÚnÙ.☆
-- ☆. I get anxious very easily <:)!!! I might stop talking or briefly leave the conversation/game if I get too overwhelmed.☆
-- ☆. Whispers are ALWAYS WELCOME!!! I compliment freely :))!!! I also block for 15 minutes if I am uncomfortable, it takes a lot to get a perma ban!!!! .☆
+- ☆.I get anxious very easily <:)!!! I might stop talking or briefly leave the conversation/game if I get too overwhelmed.☆
+- ☆.Almost always off tabbed or sometimes lurking, please whisper to get my attention. I may also not always see or respond to whispers in time.☆
+- ☆.Whispers are ALWAYS WELCOME!!! I compliment freely :))!!! I also block for 15 minutes if I am uncomfortable, it takes a lot to get a perma ban!!!!.☆
 
 - --------------------------------------------------------------------------------------------------
 
-- ☆.That being said... hello!! My name is Judas :3, call me whatever my pony name is too!!!.☆
-- ☆.I ask that you please do not talk to me if you are under 16-17, it makes me uncomfortable <:(!!! If I find you lied about your age I will unfriend you!!!.☆
-- ☆.I don't really like people copying my ponies, taking inspo from the colors and general design is A-OK!!! Just not a 1 to 1 copy....☆
-- ☆.I would prefer it if you asked for my Discord first!!! I don't like random strangers friending me UvU!!!.☆
-- ☆.I'm usually AFK and/or lurking, but feel free to C+H, whisper to interact if you don't see me active please!!! (Friends are especially welcome).☆
+- ☆.That being said... hello!! My name is Judas :3, call me whatever my pony name is too!!! Or by my kin/irl names.☆
+- ☆.Please do not talk to me if you are under 16-17, it makes me uncomfortable <:(!!! Exceptions are for the people I'm already friends with or close to.☆
+- ☆.I don't really like people copying my ponies because I take a really long time making them, taking inspo from the colors and general design is A-OK, just not a 1 to 1 copy...☆
+- ☆.I would prefer it if you asked for my Discord only if you're friended to me, or have talked to me a decent amount, thank you UvU!!!.☆
+- ☆.Usually I'm AFK and/or lurking, but feel free to C+H, whisper to interact if you don't see me active please!!! (Friends are especially welcome).☆
 - ☆.I offtab very often, if I don't respond don't take it as me being rude!! In fact please whisper to get my attention!!! :].☆
 - ☆.Tonetags are highly appreciated!! I have a hard time telling tone over text, if you speak dryly I may ask for tone specification.☆
+- ☆.Also, for clarification sake, I am not a proshipper nor do I defend them. Proshippers dni, this is not a safe space for you.☆
 - ☆.Enjoy the Blinkie and Stamp hoard below!!!! More to be added... (and made ehehehe :3).☆
 
 - --------------------------------------------------------------------------------------------------
