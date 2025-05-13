@@ -3,6 +3,7 @@
 - ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
 - ☆.My friend requests are off!! Please ask if you'd like to friend me :333!!!.☆
 - ☆.I usually play this game to relax, often times I'm lurking or making skins!!! Please don't drag me into drama... ÚnÙ.☆
+- ☆.You can ask for my SimplyPlural if you are friended to me!!! I keep it for my system friends.☆
 - ☆.I get anxious very easily <:)!!! I might stop talking or briefly leave the conversation/game if I get too overwhelmed.☆
 - ☆.Almost always off tabbed or sometimes lurking, please whisper to get my attention. I may also not always see or respond to whispers in time.☆
 - ☆.Whispers are ALWAYS WELCOME!!! I compliment freely :))!!! I also block for 15 minutes if I am uncomfortable, it takes a lot to get a perma ban!!!!.☆
