@@ -11,7 +11,8 @@
 - --------------------------------------------------------------------------------------------------
 
 - ☆.That being said... hello!! My name is Judas :3, call me whatever my pony name is too!!! Or by my kin/irl names.☆
-- ☆.Please do not talk to me if you are under 16-17, it makes me uncomfortable <:(!!! Exceptions are for the people I'm already friends with or close to.☆
+- ☆.Please do not talk to me if you are under 16, it makes me uncomfortable <:(!!! Exceptions are for the people I'm already friends with or close to.☆
+- ☆.I am very very taken and in love with my boyfriend!!! I will not reciprocate romantic advances or flirting intentionally, anything I say or do is platonic!!!.☆
 - ☆.I don't really like people copying my ponies because I take a really long time making them, taking inspo from the colors and general design is A-OK, just not a 1 to 1 copy...☆
 - ☆.I would prefer it if you asked for my Discord only if you're friended to me, or have talked to me a decent amount, thank you UvU!!!.☆
 - ☆.Usually I'm AFK and/or lurking, but feel free to C+H, whisper to interact if you don't see me active please!!! (Friends are especially welcome).☆
