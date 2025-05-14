@@ -1,8 +1,8 @@
 - --------------------------------------------------------------------------------------------------
 
 - ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
-- ☆.My friend requests are off, I also clean out my list fairly often please don't be mad if I unfriend you randomly,
-  just tell me who you are and ask for be added again :333!!!.☆
+- ☆.My friend requests are off, I also unadd inactive users please tell me if you are OFFLINE,
+  just tell me who you are and ask for be added again if I unadd you :333!!!.☆
 - ☆.I usually play this game to relax, often times I'm lurking or making skins!!! Please don't drag me into drama... ÚnÙ.☆
 - ☆.You can ask for my SimplyPlural if you are friended to me!!! I keep it for my system friends.☆
 - ☆.I get anxious very easily <:)!!! I might stop talking or briefly leave the conversation/game if I get too overwhelmed.☆
