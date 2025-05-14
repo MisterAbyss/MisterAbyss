@@ -1,25 +1,35 @@
 - --------------------------------------------------------------------------------------------------
 
 - ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
-- ☆.My friend requests are off, I also clean out my list fairly often please don't be mad if I unfriend you randomly, just tell me who you are and ask for be added again :333!!!.☆
+- ☆.My friend requests are off, I also clean out my list fairly often please don't be mad if I unfriend you randomly,
+  just tell me who you are and ask for be added again :333!!!.☆
 - ☆.I usually play this game to relax, often times I'm lurking or making skins!!! Please don't drag me into drama... ÚnÙ.☆
 - ☆.You can ask for my SimplyPlural if you are friended to me!!! I keep it for my system friends.☆
 - ☆.I get anxious very easily <:)!!! I might stop talking or briefly leave the conversation/game if I get too overwhelmed.☆
-- ☆.Almost always off tabbed or sometimes lurking, please whisper to get my attention. I may also not always see or respond to whispers in time.☆
-- ☆.Whispers are ALWAYS WELCOME!!! I compliment freely :))!!! I also do temp blocking when someone makes me uncomfortable, it takes a lot to get a perma ban!!! Just don't be an asshole and you'll be fine.☆
+- ☆.Almost always off tabbed or sometimes lurking, please whisper to get my attention.
+  I may also not always see or respond to whispers in time.☆
+- ☆.Whispers are ALWAYS WELCOME!!! I compliment freely :))!!! I also do temp blocking when someone makes me uncomfortable,
+  it takes a lot to get a perma ban!!! Just don't be an asshole and you'll be fine.☆
 
 - --------------------------------------------------------------------------------------------------
 
 - ☆.That being said... hello!! My name is Judas :3, call me whatever my pony name is too!!! Or by my kin/irl names.☆
-- ☆.Please do not talk to me if you are under 16, it makes me uncomfortable <:(!!! Exceptions are for the people I'm already friends with or close to.☆
-- ☆.I am very very taken and in love with my boyfriend!!! I will not reciprocate romantic advances or flirting intentionally, anything I say or do is platonic!!! Do no approach me with the intent to kin date!!! I don't want you lil bro!!!!.☆
-- ☆.I don't really like people copying my ponies because I take a really long time making them, taking inspo from the colors and general design is A-OK, just not a 1 to 1 copy...☆
-- ☆.My Discord and previous linked personal sites here are only given to people I know decently well, aka close friends or people I've talked to for a while on Ponytown.☆
-- ☆.Usually I'm AFK and/or lurking, but feel free to C+H, whisper to interact if you don't see me active please!!! (Friends are especially welcome).☆
+- ☆.Please do not talk to me if you are under 16, it makes me uncomfortable <:(!!!
+  Exceptions are for the people I'm already friends with or close to.☆
+- ☆.I am very very taken and in love with my boyfriend!!! I will not reciprocate romantic advances or flirting intentionally,
+  anything I say or do is platonic!!! Do no approach me with the intent to kin date!!! I don't want you lil bro!!!!.☆
+- ☆.I don't really like people copying my ponies because I take a really long time making them,
+  taking inspo from the colors and general design is A-OK, just not a 1 to 1 copy...☆
+- ☆.My Discord and previous linked personal sites here are only given to people I know decently well,
+  aka close friends or people I've talked to for a while on Ponytown.☆
+- ☆.Usually I'm AFK and/or lurking, but feel free to C+H, whisper to interact if you don't see me active please!!!
+  Friends are always welcome.☆
 - ☆.I offtab very often, if I don't respond don't take it as me being rude!! In fact please whisper to get my attention!!! :].☆
-- ☆.Tonetags are highly appreciated!! I have a hard time telling tone over text, if you speak dryly I may ask for tone specification.☆
+- ☆.Tonetags are highly appreciated!! I have a hard time telling tone over text,
+  if you speak dryly I may ask for tone specification.☆
 - ☆.My OWN tone may change or be inconsistent, I'm just kind of like that, if you need tonetags just ask please.☆
-- ☆.Also, for clarification sake, I am not a proshipper nor do I defend them. Proshippers will be blocked or hidden if I am interacted with, this isn't a safe space for you.☆
+- ☆.Also, for clarification sake, I am not a proshipper nor do I defend them.
+  Proshippers will be blocked or hidden if I am interacted with, this isn't a safe space for you.☆
 - ☆.Enjoy the Blinkie and Stamp hoard below!!!! More to be added... (and made ehehehe :3).☆
 
 - --------------------------------------------------------------------------------------------------
