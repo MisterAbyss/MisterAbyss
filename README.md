@@ -18,7 +18,7 @@
   Exceptions are for the people I'm already friends with or close to.☆
 - ☆.I am very very taken and in love with my boyfriend!!! I will not reciprocate romantic advances or flirting intentionally,
   anything I say or do is platonic!!! Do no approach me with the intent to kin date!!! I don't want you lil bro!!!!.☆
-- ☆.This guy right here *points to me* has chronic pain and a bunch of other silly stuff (it's not silly) going on, so I may be inactive depending on how I feel! My mood may also hange depending on this so please be patient!!!.☆
+- ☆.This guy right here *points to me* has chronic pain and a bunch of other silly stuff (it's not silly) going on, so I may be inactive depending on how I feel! My mood may also change depending on this so please be patient!!!.☆
 - ☆.I don't really like people copying my ponies because I take a really long time making them,
   taking inspo from the colors and general design is A-OK, just not a 1 to 1 copy...☆
 - ☆.My Discord and previous linked personal sites here are only given to people I know decently well,
