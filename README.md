@@ -3,7 +3,7 @@
 - ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
 - ☆.My friend requests are off, I also unadd inactive users please tell me if you are OFFLINE,
   just tell me who you are and ask for be added again if I unadd you :333!!!.☆
-- ☆.I usually play this game to relax, often times I'm lurking or making skins!!! Please don't drag me into drama... ÚnÙ.☆
+- ☆.I usually play this game to relax, often times I'm lurking or making skins!!!.☆
 - ☆.You can ask for my SimplyPlural if you are friended to me!!! I keep it for my system friends.☆
 - ☆.I get anxious very easily <:)!!! I might stop talking or briefly leave the conversation/game if I get too overwhelmed.☆
 - ☆.Almost always off tabbed or sometimes lurking, please whisper to get my attention.
@@ -14,7 +14,7 @@
 - --------------------------------------------------------------------------------------------------
 
 - ☆.That being said... hello!! My name is Judas :3, call me whatever my pony name is too!!! Or by my kin/irl names.☆
-- ☆.Please do not talk to me if you are under 16, it makes me uncomfortable <:(!!!
+- ☆.Please do not friend me if you are under 16, it makes me uncomfortable <:(!!!
   Exceptions are for the people I'm already friends with or close to.☆
 - ☆.I am very very taken and in love with my boyfriend!!! I will not reciprocate romantic advances or flirting intentionally,
   anything I say or do is platonic!!! Do no approach me with the intent to kin date!!! I don't want you lil bro!!!!.☆
