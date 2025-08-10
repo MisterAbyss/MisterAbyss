@@ -1,5 +1,9 @@
 - --------------------------------------------------------------------------------------------------
 
+<img width="966" height="139" alt="cooltext488492205097903" src="https://github.com/user-attachments/assets/6d2bb930-c623-46a1-8669-22c6327f39fe" />
+
+- --------------------------------------------------------------------------------------------------
+
 - ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
 - ☆.My friend requests are off, I also unadd inactive users please tell me if you are OFFLINE,
   just tell me who you are and ask for be added again if I unadd you :333!!!.☆
