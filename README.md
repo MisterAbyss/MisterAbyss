@@ -16,31 +16,28 @@
   
 <p align=center>☆.Often times I get anxious easily, :2!! <ins>I might stop talking or briefly leave the conversation or game if I get too overwhelmed</ins>.☆
   
-<p align=center>☆.<ins>Almost ALWAYS off tabbed, please whisper me if you want to talk!!</ins> 
+<p align=center>☆.<ins>Almost ALWAYS off tabbed, please whisper me if you want to talk!!</ins> I promise I'm not ignoring you!!!.☆
 
 <p align=center>☆.<ins>Anyone can C+H</ins>, I'll just leave the game when I don't want to!! (it's a socializing game cmon ppl)!!! <ins>That being said, Friends are always welcome to sit with me ::3!!!</ins>.☆
   
 <p align=center>☆.I compliment and wander freely, and will also use tonetags if necessary!!.☆
 
 𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
+### <p align=center>Introduction and Boundaries!!!
+<p align=center>☆.That being said... hello!! My name is <ins>JUDAS</ins>, you may also know me as <ins>JJ or JUDE</ins>. Calling me my <ins>PONY NAMES or my KIN NAMES</ins> is also more than fine (^_^V!!!.☆
+  
+<p align=center>☆.Please do not talk inappropriately with me if you are <ins>16 OR UNDER</ins>, it makes me uncomfortable as I am an <ins>ADULT</ins> :c!!!
+  However I do not mind <ins>COMPLIMENTS and CASUAL CONVERSATION</ins>!!! ^_^'.☆
+  
+<p align=center>☆.This guy right here *points to me* has CHRONIC ILLNESS and PAIN!!! Because of this I may be inactive for periods of time, please do not worry ^_^!!!.☆
+  
+<p align=center>☆.I do <ins>NOT tolerate 1 to 1 copies of my ponies!! Inspo for the design and colors is completely fine!! I spend a lot of time on them, <ins>my github will be linked to my ponies at all times!! If not, it is a COPY</ins>!!! >:(((.☆
 
-- ☆.That being said... hello!! My name is Judas :3, call me whatever my pony name is too!!! Or by my kin/irl names.☆
-- ☆.Please do not talk inappropriately with me if you are 16 or under, it makes me uncomfortable as I am an adult <:(!!!
-  Exceptions are for the people I'm already friends with or close to.☆
-- ☆.This guy right here *points to me* has chronic pain and a bunch of other silly stuff (it's not silly) going on, so I may be inactive depending on how I feel! My mood may also change depending on this so please be patient!!!.☆
-- ☆.I don't really like people copying my ponies because I take a really long time making them,
-  taking inspo from the colors and general design is A-OK, just not a 1 to 1 copy...☆
-- ☆.My Discord and previous linked personal sites here are only given to people I know decently well,
-  aka close friends or people I've talked to for a while on Ponytown.☆
-- ☆.Usually I'm AFK and/or lurking, but feel free to C+H, whisper to interact if you don't see me active please!!!
-  Friends are always welcome.☆
-- ☆.I offtab very often, if I don't respond don't take it as me being rude!! In fact please whisper to get my attention!!! :].☆
-- ☆.Tonetags are highly appreciated!! I have a hard time telling tone over text,
-  if you speak dryly I may ask for tone specification.☆
-- ☆.My OWN tone may change or be inconsistent, I'm just kind of like that, if you need tonetags just ask please.☆
-- ☆.Also, for clarification sake, I am not a proshipper nor do I defend them.
-  Proshippers will be blocked or hidden if I am interacted with, this isn't a safe space for you.☆
-- ☆.Enjoy the Blinkie and Stamp hoard below!!!! More to be added... (and made ehehehe :3).☆
+<p align=center>☆.Tonetags are <ins>highly appreciated</ins>!! I have a hard time telling tone over text!!! <:o.☆
+
+<p align=center>☆.Also, for clarification sake, I am NOT a <ins>PROSHIPPER/COMSHIPPER/DARKSHIPPER</ins>!!! Content involving that makes me very uncomfortable!! Please do not interact with me if you partake in those communities!!!☆
+  
+<p align=center>☆.Enjoy the Blinkie and Stamp hoard below!!!! More to be added... (and made by me ehehehe ::3).☆
 
 𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
 
