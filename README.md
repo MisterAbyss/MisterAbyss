@@ -4,6 +4,11 @@
 
 𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
 
+![76571972](https://github.com/user-attachments/assets/7bf20181-ad68-4269-b202-dc58fec03fbb) <img width="97" height="57" alt="a60643cb" src="https://github.com/user-attachments/assets/a1c87510-2506-4bbc-b8c7-6c39e65e12b7" /> <img width="99" height="56" alt="b3829f51" src="https://github.com/user-attachments/assets/f7a946ba-24c2-448c-87c5-d8859b88ced4" />
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lj7z57dbsfblt2lcvnoctdqcg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=5c0099&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<img width="99" height="56" alt="b63f2b6f" src="https://github.com/user-attachments/assets/c8ec91f1-a979-44c5-82ab-9f3492faa8a6" /> <img width="99" height="56" alt="ec6d50ff" src="https://github.com/user-attachments/assets/4cb04461-9767-4dcc-9f47-be1d332428d0" /> <img width="99" height="56" alt="cf2aca14" src="https://github.com/user-attachments/assets/1c5c64b2-5904-4a45-9bde-70b53fbc55cd" />
+
+𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
+
 - ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
 - ☆.My friend requests are off, I also unadd inactive users please tell me if you are OFFLINE,
   just tell me who you are and ask for be added again if I unadd you :333!!!.☆
