@@ -7,22 +7,25 @@
 <img width="97" height="57" alt="a60643cb" src="https://github.com/user-attachments/assets/a1c87510-2506-4bbc-b8c7-6c39e65e12b7" /> <img width="99" height="56" alt="b63f2b6f" src="https://github.com/user-attachments/assets/c8ec91f1-a979-44c5-82ab-9f3492faa8a6" /> ![8ceedc8d](https://github.com/user-attachments/assets/98772054-8c47-4a40-8f73-94e06002601d) ![14f86ae9](https://github.com/user-attachments/assets/67423beb-ddf0-4aca-af7d-9a5584f887ee) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lj7z57dbsfblt2lcvnoctdqcg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=5c0099&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)![5b4c74ae](https://github.com/user-attachments/assets/945c249d-66e0-48b8-bd74-6cfce0684754) ![e28c7627](https://github.com/user-attachments/assets/7dccf072-ecef-43fe-9eb7-08e29debea56) <img width="99" height="56" alt="ec6d50ff" src="https://github.com/user-attachments/assets/4cb04461-9767-4dcc-9f47-be1d332428d0" /> <img width="99" height="56" alt="cf2aca14" src="https://github.com/user-attachments/assets/1c5c64b2-5904-4a45-9bde-70b53fbc55cd" />
 
 𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
+### <p align=center>Important Info!!!
+<p align=center>☆.This is mostly for Ponytown!! I plan to use it for future projects hopefully ^u^!!!!.☆
 
-- ☆.This is mostly for Ponytown!! I might use it for future projects, who knows ^u^!!!!.☆
-- ☆.My friend requests are off, I also unadd inactive users please tell me if you are OFFLINE,
-  just tell me who you are and ask for be added again if I unadd you :333!!!.☆
-- ☆.I usually play this game to relax, often times I'm lurking or making skins!!!.☆
-- ☆.You can ask for my SimplyPlural if you are friended to me!!! I keep it for my system friends.☆
-- ☆.I get anxious very easily <:)!!! I might stop talking or briefly leave the conversation/game if I get too overwhelmed.☆
-- ☆.Almost always off tabbed or sometimes lurking, please whisper to get my attention.
-  I may also not always see or respond to whispers in time.☆
-- ☆.Whispers are ALWAYS WELCOME!!! I compliment freely :))!!! I also do temp blocking when someone makes me uncomfortable,
-  it takes a lot to get a perma ban!!! Just don't be an asshole and you'll be fine.☆
+<p align=center>☆.<ins> My friend requests are OFF, I also unadd INACTIVE users or people who don't talk to me often</ins>.☆
+  
+<p align=center>☆.I play this game to relax, often times I'm lurking or making skins!!!<ins> I do NOT care for DISCOURSE!!!</ins>.☆
+  
+<p align=center>☆.Often times I get anxious easily, :2!! <ins>I might stop talking or briefly leave the conversation or game if I get too overwhelmed</ins>.☆
+  
+<p align=center>☆.<ins>Almost ALWAYS off tabbed, please whisper me if you want to talk!!</ins> 
+
+<p align=center>☆.<ins>Anyone can C+H</ins>, I'll just leave the game when I don't want to!! (it's a socializing game cmon ppl)!!! <ins>That being said, Friends are always welcome to sit with me ::3!!!</ins>.☆
+  
+<p align=center>☆.I compliment and wander freely, and will also use tonetags if necessary!!.☆
 
 𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
 
 - ☆.That being said... hello!! My name is Judas :3, call me whatever my pony name is too!!! Or by my kin/irl names.☆
-- ☆.Please do not friend me if you are under 16, it makes me uncomfortable <:(!!!
+- ☆.Please do not talk inappropriately with me if you are 16 or under, it makes me uncomfortable as I am an adult <:(!!!
   Exceptions are for the people I'm already friends with or close to.☆
 - ☆.This guy right here *points to me* has chronic pain and a bunch of other silly stuff (it's not silly) going on, so I may be inactive depending on how I feel! My mood may also change depending on this so please be patient!!!.☆
 - ☆.I don't really like people copying my ponies because I take a really long time making them,
