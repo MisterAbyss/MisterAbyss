@@ -3,10 +3,6 @@
 <img width="966" height="139" alt="cooltext488492205097903" src="https://github.com/user-attachments/assets/6d2bb930-c623-46a1-8669-22c6327f39fe" />
 
 𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
-
-<img width="97" height="57" alt="a60643cb" src="https://github.com/user-attachments/assets/a1c87510-2506-4bbc-b8c7-6c39e65e12b7" /> <img width="99" height="56" alt="b63f2b6f" src="https://github.com/user-attachments/assets/c8ec91f1-a979-44c5-82ab-9f3492faa8a6" /> ![8ceedc8d](https://github.com/user-attachments/assets/98772054-8c47-4a40-8f73-94e06002601d) ![14f86ae9](https://github.com/user-attachments/assets/67423beb-ddf0-4aca-af7d-9a5584f887ee) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lj7z57dbsfblt2lcvnoctdqcg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=5c0099&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)![5b4c74ae](https://github.com/user-attachments/assets/945c249d-66e0-48b8-bd74-6cfce0684754) ![e28c7627](https://github.com/user-attachments/assets/7dccf072-ecef-43fe-9eb7-08e29debea56) <img width="99" height="56" alt="ec6d50ff" src="https://github.com/user-attachments/assets/4cb04461-9767-4dcc-9f47-be1d332428d0" /> <img width="99" height="56" alt="cf2aca14" src="https://github.com/user-attachments/assets/1c5c64b2-5904-4a45-9bde-70b53fbc55cd" />
-
-𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
 ### <p align=center>Important Info!!!
 <p align=center>☆.This is mostly for Ponytown!! I plan to use it for future projects hopefully ^u^!!!!.☆
 
@@ -38,6 +34,10 @@
 <p align=center>☆.Also, for clarification sake, I am NOT a <ins>PROSHIPPER/COMSHIPPER/DARKSHIPPER</ins>!!! Content involving that makes me very uncomfortable!! Please do not interact with me if you partake in those communities!!!☆
   
 <p align=center>☆.Enjoy the Blinkie and Stamp hoard below!!!! More to be added... (and made by me ehehehe ::3).☆
+  
+𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
+
+<img width="97" height="57" alt="a60643cb" src="https://github.com/user-attachments/assets/a1c87510-2506-4bbc-b8c7-6c39e65e12b7" /> <img width="99" height="56" alt="b63f2b6f" src="https://github.com/user-attachments/assets/c8ec91f1-a979-44c5-82ab-9f3492faa8a6" /> ![8ceedc8d](https://github.com/user-attachments/assets/98772054-8c47-4a40-8f73-94e06002601d) ![14f86ae9](https://github.com/user-attachments/assets/67423beb-ddf0-4aca-af7d-9a5584f887ee) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lj7z57dbsfblt2lcvnoctdqcg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=5c0099&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)![5b4c74ae](https://github.com/user-attachments/assets/945c249d-66e0-48b8-bd74-6cfce0684754) ![e28c7627](https://github.com/user-attachments/assets/7dccf072-ecef-43fe-9eb7-08e29debea56) <img width="99" height="56" alt="ec6d50ff" src="https://github.com/user-attachments/assets/4cb04461-9767-4dcc-9f47-be1d332428d0" /> <img width="99" height="56" alt="cf2aca14" src="https://github.com/user-attachments/assets/1c5c64b2-5904-4a45-9bde-70b53fbc55cd" />
 
 𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
 
