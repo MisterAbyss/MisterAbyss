@@ -43,7 +43,7 @@
 
 <p align=center>☆.Hello hello!!! My page was getting WAAYYY too laggy so I went ahead and made a rentry for my stamps ^,...,^!!!!.☆
 <p align=center>☆.I am continuously adding more like everyday lmao so check it out if you'd like!!!!.☆
-<p align=center>☆.P.S: A lot of the ones I made break often and I'm working on fixing it :(, reloading the page helps usually!!!!.☆
+<p align=center>☆.P.S: A lot of the ones I made break often and I'm working on fixing it :(, reloading the page several times helps usually!!!!.☆
 <p align=center>☆ https://rentry.co/chudstamps ☆
   
 𓇼 ⋆｡˚ 𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆞𓆝 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝 𓆟 𓆞𓆝⋆｡˚ 𓇼
