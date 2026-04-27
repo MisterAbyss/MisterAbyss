@@ -32,6 +32,8 @@
 <p align=center>☆.Tonetags are <ins>highly appreciated</ins>!! I have a hard time telling tone over text!!! <:o.☆
 
 <p align=center>☆.Also, for clarification sake, I am NOT a <ins>PROSHIPPER/COMSHIPPER/DARKSHIPPER</ins>!!! Content involving that makes me very uncomfortable!! Please do not interact with me if you partake in those communities!!!☆
+
+<p align=center>☆.Yo my uhhhhh page is sorta broken slash got reformatted weirdly, will be working on fixing that soon lol.☆
   
 <p align=center>☆.Enjoy the Blinkie and Stamp hoard below!!!! More to be added... (and made by me ehehehe ::3).☆
   
