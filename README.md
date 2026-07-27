@@ -27,7 +27,9 @@
   
 <p align=center>☆.This guy right here *points to me* has CHRONIC ILLNESS and PAIN!!! Because of this I may be inactive for periods of time, please do not worry ^_^!!!.☆
   
-<p align=center>☆.I do <ins>NOT tolerate 1 to 1 copies of my ponies!! Inspo for the design and colors is completely fine!! I spend a lot of time on them, <ins>my github will be linked to my ponies at all times!! If not, it is a COPY</ins>!!! >:(((.☆
+<p align=center>☆.I do <ins>NOT tolerate 1 to 1 copies of my ponies!! LOOSE inspo for the design and colors is completely fine!! I spend a lot of time on them, <ins>my github will be linked to my ponies at all times!! If not, it is a COPY</ins>!!! >:(((.☆
+
+<p align=center>☆.I can't believe I have 2 reiterate the boundary above, do not steal my designs, I will block you.☆
 
 <p align=center>☆.Tonetags are <ins>highly appreciated</ins>!! I have a hard time telling tone over text!!! <:o.☆
 
